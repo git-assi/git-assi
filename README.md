@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @git-assi
-- 👀 I’m interested in sword fighting, making money and some IF stuff I guess
+- 👀 I’m interested in sword fighting, 3D printing andm since im here, some IT stuff I guess
 - 🌱 I’m currently learning Longsword by Joachim Meyer, this and that
 - 💞️ I’m looking to collaborate on my stuff, and alone, but thx
 - 📫 How to reach me: plz don't
